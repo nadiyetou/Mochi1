@@ -1,0 +1,15 @@
+My name is Nadiyetou, going to Hillhouse High 
+school. Love sports, have different hobbies.
+
+Awesome Mochi 
+
+
+#My hobbies
+-[Soccer](https://www.foxsports.com/live).
+-[Reading](https://www.newhavenct.gov/government/departments-divisions/public-library).
+-[Cooking](https://www.jimmydean.com/recipes/?gclid=Cj0KCQiAic6eBhCoARIsANlox84LPk8XXyfIpRAyf1EoT13nwLEN6mmnIWyJJ_mhYvYDrtPo_LaC3VgaApvREALw_wcB&gclsrc=aw.ds).
+ 
+ Animals & Nature
+
+The beautiful is bel as we know!
+
