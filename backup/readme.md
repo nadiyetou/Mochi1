@@ -13,3 +13,9 @@ Awesome Mochi
 
 The beautiful is bel as we know!
 
+
+
+current path: /Users/student/Desktop/Mochi/backup 
+previous path: /Users/student/Desktop/Mochi/Who_are_you
+
+Nextpath: 
